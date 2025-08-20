@@ -19,7 +19,7 @@
 
 - Queijo muçarela ralado
 
-- Presunto fatiado ou calabresa
+- Presunto fatiado ou calabresa 
 
 - Orégano a gosto
 
