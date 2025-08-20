@@ -1,4 +1,4 @@
-# Pizza
+# Pizza 🍕
 ## Ingredientes da massa:
 
 - 2 xícaras de farinha de trigo
